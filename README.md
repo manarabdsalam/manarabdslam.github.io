@@ -1,1 +1,1 @@
-# manarabdslam.github.io
+# Magazine.github.io
